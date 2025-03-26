@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on creating  more projects<br>👯 I’m looking to collaborate on design and web based projects<br>🤝 I’m looking for help with enhancing my problem solving skills<br>🌱 I’m currently learning java and JavaScript<br>⚡ Fun fact  am a student in international Burch university 1st year. <br>am great at   artistic and creative thinking<br><br><br>i love cooperating  with others
+🔭 I’m currently working on creating  more projects<br>👯 I’m looking to collaborate on design and web based projects<br>🤝 I’m looking for help with enhancing my problem solving skills<br>🌱 I’m currently learning java and JavaScript<br>⚡ Fun fact  am a student in international Burch university 1st year. <br>am great at   artistic and creative thinking<br><br>i love cooperating with others
 
 
 ## 🌐 Socials:
